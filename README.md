@@ -30,7 +30,7 @@ Nosso objetivo é proporcionar o melhor conteúdo para o nosso público, onde qu
 
 ## Contato Comercial
 
-Para propagandas e parcerias, entre em contato com nossa equipe pelo telefone **meia cinco, nove oito quatro onze, zero meia setenta**.
+Para propagandas e parcerias, entre em contato com nossa equipe pelo telefone **+55 65 9841-10670**.
 
 ---
 
